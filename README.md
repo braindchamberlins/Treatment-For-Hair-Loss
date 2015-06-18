@@ -1,0 +1,2 @@
+# Treatment-For-Hair-Loss
+Hands down, the best treatment for hair loss is catching it early. Waiting until all your hair is already gone is a terrible time to decide you want it back. Trying to cover up the patches with spray paint, or other dyes only damages the hair even further. Proper treatment has to come from the inside out. There are simple things your body may be lacking and it's taking it's toll on your hair. Click Here: http://hairlosses.net/
